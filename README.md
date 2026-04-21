@@ -228,18 +228,10 @@ https://sibnovosti.ru/news/440097/
 
 https://vestinn.ru/news/society/94719/
 
-https://tass.ru/proisshestviya/21397685
-
-https://knife.media/i-hear-voices/
-
-https://www.bbc.com/russian/articles/cz9evgyng0do
-
 https://ru.wikipedia.org/wiki/%D0%A3%D0%B1%D0%B8%D0%B9%D1%81%D1%82%D0%B2%D0%BE_%D0%BC%D0%BE%D0%BD%D0%B0%D1%85%D0%BE%D0%B2_%D0%B2_%D0%9E%D0%BF%D1%82%D0%B8%D0%BD%D0%BE%D0%B9_%D0%BF%D1%83%D1%81%D1%82%D1%8B%D0%BD%D0%B8
 
 https://116.ru/text/gorod/2007/11/14/62874661/
 
 https://ptzgovorit.ru/news/golosa-v-golove-prikazali-muzhchine-ubit-zhenu
-
-https://news.mail.ru/society/67169720/
 
 https://tvspb.ru/news/2022/03/28/golosa-v-golove-gromkie-ubijstva-peterburga-sovershennye-psihbolnymi
