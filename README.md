@@ -93,7 +93,7 @@ https://rusneb.ru/catalog/010003_000061_739703d1c8b9294244b35e9109cf33b6/
 
 Ну и далее история стала секретом Полишинеля.
 
-https://www.moscomeco.org/
+https://moscomeco.narod.ru/
 
 https://rg.ru/2006/12/22/gosbezopasnostj-podsoznanie.html
 
